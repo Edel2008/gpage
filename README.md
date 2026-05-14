@@ -1,1 +1,1 @@
-Nombre grado y grupo
+Edel Luis Soriano santamaria 2Avpr
